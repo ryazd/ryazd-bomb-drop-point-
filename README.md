@@ -1,0 +1,1 @@
+# ryazd-bomb-drop-point-
